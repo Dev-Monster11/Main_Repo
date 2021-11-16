@@ -1,7 +1,6 @@
 
-This is Maksim Iwanov.
-Are you available to on Skype or Slack?
-It's more flexible way to keep realtime communication.
+Hi.
+It is not allowed to communicate outside, but if you want flexible communication we can use Skype or Slack.
 My skype contact is
 live:.cid.201b8c7873158cb2
 My working email is 
