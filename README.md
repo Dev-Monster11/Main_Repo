@@ -1,4 +1,4 @@
-Hello. This is Krasnenko
+Hello. This is Zotov Yuri.
 Are you available in Skype, Slack or Discord?
 It's more flexible way to communicate between us.
 My working email is
