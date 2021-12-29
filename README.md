@@ -1,4 +1,9 @@
-so weird.
+Are you available in Skype, Slack or Discord?
+My Skype contact is
+live:.cid.201b8c7873158cb2
 
-I hope you create Skype, Slack or Discord account.
-It takes only ~1 min
+My Email is 
+softdrink1991@gmail.com
+
+My Discord id is
+Dev Monster#9897
